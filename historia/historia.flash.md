@@ -1,0 +1,3 @@
+# Historia de Flash
+
+The Flash ist ein US-amerikanischer Science-Fiction- und Action-Film, der auf der Comicfigur The Flash basiert und Teil des DC Extended Universe ist. Es ist nach Justice League die zweite Kinoverfilmung über die Figur Flash und der erste Solofilm mit Flash alias Barry Allen überhaupt. Ezra Miller kehrt aus Justice League in die Rolle von Flash zurück. Obwohl der Film denselben Titel wie die von 2014 bis 2023 ausgestrahlte Fernsehserie trägt und von denselben Figuren handelt, spielen beide Adaptionen in unterschiedlichen Universen. Der Film wurde vorab auf der CinemaCon am 25. April 2023 gezeigt, bevor er Premiere am 12. Juni in Los Angeles feierte und kam am 15. Juni 2023 in die deutschen Kinos; in den USA startete er einen Tag später.
